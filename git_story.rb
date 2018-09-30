@@ -1,1 +1,1 @@
-Yesterday I rode my bike to a restaurant where they serve ice cream cones filled with fried chicken. I ordered mine with the hot hot sauce. It was delicious, but I spilled chicken and hot sauce all over my pants. So I ride home pantsless. I felt so free and alive.
+Yesterday I rode my bike to a restaurant where they serve ice cream cones filled with fried chicken. I ordered mine with the hot hot sauce. It was delicious, but I spilled chicken and hot sauce all over my pants. So I rode home pantsless. I felt so free and alive.
